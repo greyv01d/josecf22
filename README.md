@@ -2,7 +2,7 @@
  
 
 
-📫 Reach me at <a href="mailto:jocec22@gmail.com">My Mail</a><br>
+📫 Reach me at <a href="mailto:jocec22@gmail.com">My Email</a><br>
 
 
 
